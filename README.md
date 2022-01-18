@@ -1,1 +1,2 @@
 - 👋 Hi, I’m @Cxrzzed
+- 👋 Discord: cursed#0666
